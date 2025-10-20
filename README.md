@@ -1,16 +1,23 @@
-## Hi there 👋
 
-<!--
-**Skizzleblue/skizzleblue** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+# Best veiwed on PC !
 
-Here are some ideas to get you started:
+![x](https://i.pinimg.com/736x/44/35/35/4435354988d5d8363abc3f078f67940e.jpg)
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+## I wish it wasn't so noisy...
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+
+[Strawpage !!](https://bedbugz.straw.page) [Pronouns.cc !!](https://pronouns.cc/@skizzleblue)
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+
+I dont know how to use github :sob : !!
+
+Cud/touch comf ^^ feel free to sit with me !!! 
+
+im not the best when it comes to social interactions soz :((
+
+✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
+
+![x](https://i.pinimg.com/736x/d0/31/dd/d031dd11c8d003809e84de7a8821ca6f.jpg)
