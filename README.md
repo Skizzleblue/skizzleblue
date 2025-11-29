@@ -1,10 +1,10 @@
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
-# Best veiwed on PC !
 
-![x](https://i.pinimg.com/736x/44/35/35/4435354988d5d8363abc3f078f67940e.jpg)
 
-## I wish it wasn't so noisy...
+![x](https://pbs.twimg.com/media/G5WqqMga0AAM1Wa?format=jpg&name=large)
+
+## Lost cause.
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
@@ -20,4 +20,4 @@ im not the best when it comes to social interactions soz :((
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
-![x](https://i.pinimg.com/736x/d0/31/dd/d031dd11c8d003809e84de7a8821ca6f.jpg)
+![x](https://pbs.twimg.com/media/G5fPK6qbcAIHkGf?format=jpg&name=large)
