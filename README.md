@@ -19,7 +19,7 @@ Cud/touch comf ^^ feel free to sit with me !!!
 
 im not the best when it comes to social interactions soz :((
 
-add me on pt idm !
+add me on pt idm ! i do unadd freely so keep that in mind !
 
 ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦ . 　⁺ 　 . ✦
 
