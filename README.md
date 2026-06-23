@@ -22,7 +22,7 @@
 <p align="center">
 <a href="https://bedbugz.straw.page">strawpage !! </a> |
 <a href="https://pronouns.cc/@skizzleblue">Pronouns.cc !! </a> |
-<a href="https://example.com">Link 3</a>
+<a href="https://skizzlebug.atabook.org/"> ata !! </a>
 </p>
 
 
