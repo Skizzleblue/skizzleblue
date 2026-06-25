@@ -31,11 +31,12 @@
 </p>
 
 <p align="center">
-Cud/touch comf ^^ feel free to sit with me !!! <br/>
+Cud/touch comf ^^ <br/> 
+  feel free to sit with me !!! just don't fully cover me :nod: <br/>
   ✦<br/>
-im not the best when it comes to social interactions soz :(( <br/>
+im not the best when it comes to social interactions :(( <br/>
   ✦<br/>
-add me on pt idm ! i do unadd freely so keep that in mind !
+green name me on pt idm! 
 </p>
 
 <p align="center">
