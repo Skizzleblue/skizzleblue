@@ -20,9 +20,9 @@
 </p>
 
 <p align="center">
-✦ . <a href="https://tennaksser.straw.page"> strawpage !! </a> |
+ <a href="https://tennaksser.straw.page"> strawpage !! </a> |
 <a href="https://pronouns.cc/@skizzleblue">Pronouns.cc !! </a> |
-<a href="https://skizzlebug.atabook.org/"> ata !! </a> . ✦
+<a href="https://skizzlebug.atabook.org/"> ata !! </a> 
 </p>
 
 
